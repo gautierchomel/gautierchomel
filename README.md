@@ -1,13 +1,16 @@
 
 
->  whopping 25 years in editorial and book production design
 
-> walking, talking library of the craft.
+📚   whopping 25 years in editorial and book production design
 
-> on a crusade to make content accessible for print disabled folks
+🚶 walking, talking library of the craft
 
-> collaborated with the heavyweights like WIPO and the Daisy Consortium.
+📖 on a crusade to make content accessible for all
 
->  runs his own certified training center, éditadapt. 
+🌟 collaborated with the heavyweights like WIPO and the Daisy Consortium.
 
-> hand printing with 3D matrices—because who needs ordinary hobbies when you can have full-blown obsessions?
+📜 runs *éditadapt*, an international certified training center
+
+🖨️ hand printing with 3D matrices
+
+💻  project handling for the extraordinary digital reading laboratory (EDRLab)
