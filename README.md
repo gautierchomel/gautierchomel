@@ -1,11 +1,8 @@
+📚 whopping 25 years in editorial and book production design
 
+🚶 walking round the world to meet pairs and talk of the craft
 
-
-📚   whopping 25 years in editorial and book production design
-
-🚶 walking, talking library of the craft
-
-📖 on a crusade to make content accessible for all
+📖 enthousiast to make content accessible for all
 
 🌟 collaborated with the heavyweights like WIPO and the Daisy Consortium.
 
